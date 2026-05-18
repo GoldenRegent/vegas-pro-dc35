@@ -1,4 +1,4 @@
-# 
+# New Adobe Premiere Pro for PC plugins is the best Adobe Premiere Pro for PC plugins with DAW-functionality and automation. Safe, reliable, and optimized for maximum performance.
 
 
 
